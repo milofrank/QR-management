@@ -1,0 +1,1 @@
+# Manejos-de-codigos-QR
